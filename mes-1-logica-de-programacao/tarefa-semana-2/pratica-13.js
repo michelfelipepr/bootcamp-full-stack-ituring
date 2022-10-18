@@ -1,0 +1,1 @@
+//exercicios pendentes, vou revisar todo o conteudo para pesquisar e executar :(
